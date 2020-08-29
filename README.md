@@ -1,0 +1,2 @@
+# mahesis
+genesisi kopyası
